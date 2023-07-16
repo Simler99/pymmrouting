@@ -1,1 +1,1 @@
-Kai ist cool!
+Kai ist super cool!
